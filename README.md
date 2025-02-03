@@ -4,7 +4,6 @@
 - 🌱 Estoy estudiando en la Universidad Bioingeniería
 - 🤔 I’m looking for help with english
 - 💬 Ask me about anything
-- 📫 How to reach me: ...
 - 😄 Pronouns: Guille
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I’m good many deports
 
